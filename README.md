@@ -12,7 +12,7 @@ how to build it on ur own
 
 
 
-Donations
+# Donations
 
 Join the discord for more infomation.
 
