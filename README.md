@@ -19,3 +19,7 @@ Join the discord for more infomation.
 2 Boosts in discord OR discord nitro -- 1 month / for 1 month 'cool dudes' cape.
 
 10 boosts in discord OR discord nitro for -- 1 year / for lifetime custom cape.
+
+# Credits
+1k99
+and 73vc
